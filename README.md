@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **abdur518@icloud.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RdA2xH8fvlfWfvC6qGhMuz5Q8gh-kQBP/view?usp=sharing](https://drive.google.com/file/d/1RdA2xH8fvlfWfvC6qGhMuz5Q8gh-kQBP/view?usp=sharing)
 
 
 
